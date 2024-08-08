@@ -1,13 +1,12 @@
 - 👋 Hi, I’m @Kofnoy1999
-- 👀 I’m interested in ...freegame
-- 🌱 I’m currently learning ...
+- 👀 I’m interested in ...Z1N5882511
+- 🌱 I’m currently learning ...freegame14
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 <!---
-Kofnoy1999/Kofnoy1999 is a ✨ special ✨ repository because its `READMEhttps://m.pgf-thzvvo.com/89/index.html?
+Kofnoy1999/Kofnoy1999 is a ✨ special ✨ repository because its `READMEhttps://m.pgf-thzvvo.com/89/index.html?https://m.pgf-thzvvo.com/89/index.htmot=219FAB7A%freegame%14
  .md` (this file) appears on your GitHub profile.
 https://m.pgf-thzvvo.com/89/index.html?ot=219FAB7AectYou can click the Preview link to take a look at your changes.
---->
-DD3F-48CD-AD1B-8FB81C01606A&l=th&btt=1&t=B4F0905E-9A0D-44BF-83F1-3A4A8ED8618F&f=%2F%2Fpublic.pgf-thzvvo.com%2Fweb-lobby%2Fclose%2F%3Fot%3D219FAB7A-DD3F-48CD-AD1B-8FB81C01606A%26l%3Dth%26btt%3D1%26ops%3Dz1n5882511_9hmcc1tsjgm5ro152qv454r0rh%26f%3Dhttps%253A%252F%252Fpublic.pgjksjk.com%252Fpages%252Fclose.html%253Fx%26__m%3Dtrue%23mobile%23games%26redirect%3D%2F%2Fpublic.pgf-thzvvo.com%2Fweb-lobby%2Fgames%2F&or=15hipixr%3Devu-iwokkd%3Drdb&__hv=1fa07948%freegame_12f
+--->https://m.pgfreegame%14thzvvo.com/89/index.html?ot=219FAB7A-DD3F-48CD-AD1B-8FB81C01606A&l=th&btt=1&t=B4F0905E-9A0D-44BF-83F1-3A4A8ED8618F&f=%2F%2Fpublic.pgf-thzvvo.com%2Fweb-lobby%2Fclose%2F%3Fot%3D219FAB7A-DD3F-48CD-AD1B-8FB81C01606A%26l%3Dth%26btt%3D1%26ops%3Dz1n5882511_9hmcc1tsjgm5ro152qv454r0rh%26f%3Dhttps%253A%252F%252Fpublic.pgjksjk.com%252Fpages%252Fclose.html%253Fx%26__m%3Dtrue%23mobile%23games%26redirect%3D%2F%2Fpublic.pgf-thzvvo.com%2Fweb-lobby%2Fgames%2F&or=15hipixr%3Devu-iwokkd%3Drdb&__hv=1fa07948%freegame_12f
